@@ -6,3 +6,4 @@
 <p align="center">✮˚.彡⋆｡˚c+h encouraged⋆✮˚.彡⋆｡˚</p>
 
 ![yay](https://i.postimg.cc/nL8Zs3fq/Untitled54-20250830175253.png)
+<p align="center">[https://define-proship.carrd.co] . [https://proshipresourcesaccessible.carrd.co] </p>
